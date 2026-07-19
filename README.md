@@ -1,1 +1,1 @@
-### Thingking Machine
+### Believing Machine
